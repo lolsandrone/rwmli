@@ -52,8 +52,7 @@
   Cry of Fear – Afraid Of Monsters – Leagues of Legends – Overwatch – Wildrift – Resident Evil 7 –  
   The Last of Us – Pony Town – Genshin Impact – Honkai: Star Rail – Far Cry –  
   Red Dead Redemption – RDR 2 – Silent Hill – Doki Doki Literature Club –  
-  Detroit Become Human – Life Is Strange – Touhou  
-  (and other games I might have forgot…)
+  Detroit Become Human – Life Is Strange – Touhou  - Hogwards legacy - and many more...
   </i>
   </span>
    <p align="center">
